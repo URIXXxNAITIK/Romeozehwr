@@ -1,13 +1,13 @@
 
-> 𝐑𝐎𝐌𝐄𝐎𝐁𝐎𝐓 </b>
+> 𝐔𝐑𝐈𝐗𝐗 𝐁𝐎𝐓  </b>
 </h1>
 
 <p align="center">
-  <img src="https://telegra.ph/file/a62b9c7d9848afde0569e.jpg" alt="Romeo-RJ">
+  <img src="[https://telegra.ph/file/a62b9c7d9848afde0569e.jpg](https://graph.org/file/80efb1113eb780083dbec.jpg)" alt="Romeo-RJ">
 </p>
 
 <h6 align="center">
-  <b>🇮🇳 𝐑𝐎𝐌𝐄𝐎★𝐁𝐎𝐓 🇮🇳</b>
+  <b>🇮🇳 𝐔𝐑𝐈𝐗𝐗😈𝐁𝐎𝐓  🇮🇳</b>
 </h6>
 
 <h3 align="center">
